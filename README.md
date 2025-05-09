@@ -14,8 +14,8 @@
   Probability-driven Decision Making
 
 ### 🌌 人文探索
-- 存在主义与道家哲学  
-  Existentialism & Taoist Philosophy
+- 道家哲学  
+  Taoist Philosophy
 - 阿德勒心理学实践  
   Adlerian Psychology in Practice
 - 古典美学与诗意栖居  
