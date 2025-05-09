@@ -41,10 +41,10 @@
   Wu Wei Practitioner: Embracing tranquil non-action
 
 ## 🌍 世界观宣言 Worldview Manifesto
-> "世界是概率场的交响乐，  
+> **世界是概率场的交响乐** 
 > **痛苦本身不会让我们痛苦**  
 
-> "The world is a symphony of probability fields,  
+> **The world is a symphony of probability fields,** 
 > **Pain does not inherently cause suffering**  
 
 ### 📮联系方式 Contact
